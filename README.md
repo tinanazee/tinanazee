@@ -2,7 +2,7 @@
 - 👀 I’m interested in growth.
 - 🌱 I’m currently learning to heal.
 - 💞️ I’m looking to collaborate on nonprofit related work.
-- 📫 How to reach me: ynn9876531@gmail.com
+- 📫 How to reach me: Intagram @tinanazee
 
 <!---
 tinanazee/tinanazee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
