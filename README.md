@@ -1,1 +1,1 @@
-I want to collaborate on nonprofits matter. 
+Predicate: Admit a unify resolution is needed in Haiti.
