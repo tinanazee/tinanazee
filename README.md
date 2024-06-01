@@ -1,1 +1,1 @@
-Predicate: Admit a unify resolution is needed in Haiti.
+Appeal: A vision to surmise resolutions in PAP.
