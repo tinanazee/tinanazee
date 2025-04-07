@@ -1,1 +1,1 @@
-Holds a Bachelor's degree with honors and a minor in English. Current Master's student. CU26
+Holds a Bachelor's degree with honors and a minor in English. 
